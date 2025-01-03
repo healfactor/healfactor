@@ -5,8 +5,6 @@
 
 　　　 　　cuddle and hide is **fine**, Im usually offtab or editing a pony.
  　　
- 　　
-
-  　　　 　　 　　i'm mostly in my rubedo (noble), luocha, or hnk skins
+ 　　　 　　 　　i'm mostly in my rubedo (noble), luocha, or hnk skins
 
 **fandoms:** fragaria memories, onmyoji, hnk, wuwa, etc 　　　i don't like alst but i have watched it through, luka is my fav :]
