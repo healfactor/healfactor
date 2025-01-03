@@ -3,7 +3,7 @@
 　　　　　　　　⸺⸺⸺　　　　　　　⸺
 　　　　　　　　　◜　　　a soul with no king　.
 
-　　cuddle and hide is **fine**, Im usually offtab or editing a pony.
+　　　 　　cuddle and hide is **fine**, Im usually offtab or editing a pony.
  　　
  　　
 
