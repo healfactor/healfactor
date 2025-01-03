@@ -7,4 +7,4 @@
  　　
  　　　i'm mostly in my rubedo (noble), luocha, or hnk skins
 
-**fandoms:** fragaria memories, onmyoji, hnk, wuwa, etc 　　　i don't like alst but i have watched it through, luka is my fav :]
+**fandoms:** fragaria memories, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　
