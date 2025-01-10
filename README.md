@@ -7,4 +7,4 @@
  　　
  　　　i'm mostly in my rubedo (noble), luocha, or hnk skins
 
-**fandoms:** fragaria memories, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　
+**fandoms:** fragaria memories, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　my pfp is my oc, art is by frostybirdy
