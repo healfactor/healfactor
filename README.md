@@ -1,6 +1,6 @@
 ![art by frostybirdy](https://i.postimg.cc/VLpfDsHG/cedar-1.png)
 
-　　　　　　　　⸺⸺⸺　　　　　　　⸺
+
 　　　　　　　　　◜　　　a soul with no king　.
 
 　　　 　　cuddle and hide is **fine**, Im usually offtab or editing a pony.
