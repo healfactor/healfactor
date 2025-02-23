@@ -1,4 +1,4 @@
-![by schizsou](https://64.media.tumblr.com/7267b550b43a6c0cbeb271d1d8509d1c/4972b01953854b5a-a8/s2048x3072/1cd545c26de66764b325c372a07dfb2a84f91ece.png)
+![by hauntingmizi on tumblr](https://64.media.tumblr.com/586fe6bbe2921ac0e2fa505884b610fc/1e39ffffcb72fd18-29/s640x960/69ea5571e1c7b34c140a9f878600e5a9fa56f383.png)
 
 
 　　　　　　　　　　　　　◜　　　Oh, they tell me gluttony's a sin　.
