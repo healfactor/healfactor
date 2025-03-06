@@ -7,4 +7,4 @@
 
  　　
 
-　　　　　　**fandoms:** fragaria memories, magi, ashes of the kingdom, flower ariel, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　
+　　　　　　**fandoms:** dmdp, fragaria memories, magi, yaelorke, flower ariel, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　
