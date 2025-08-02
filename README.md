@@ -4,7 +4,9 @@
 　　　　　　　　　　　　　　　　　　　　　◜　　　To eclipse my head, and beg again　.
 
 　　　 　　　　　　　　　　　　　　　cuddle and hide is **fine**, Im usually offtab or editing a pony.
-
+　　　 　　　　　　　　　　　　　　　id prefer no whispers but they're ok if you're complimenting/asking a question
  　　
 
-　　　　　　**fandoms:** dmdp, fragaria memories, magi, yaelorke, flower ariel, 18trip, guilongchao, onmyoji, hnk, wuwa, etc 　　　
+
+　　　 　　　　　　　　　　　　　　　**main fandoms:** fragaria memories, orv, magi, devil venerable, stars of chaos, thousand autumns, mxtx
+　　　 　　　　　　　　　　　　　　　bad skunk, wuwa, hnk, dmdp, crk　　　
