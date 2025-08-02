@@ -8,5 +8,5 @@
  　　
 
 
-　　　 　　　　　　　　　　　　　　　**main fandoms:** fragaria memories, orv, magi, devil venerable, stars of chaos, thousand autumns, mxtx
+　　　 　　　　　　　　　　　　　　　**main fandoms:** fragaria memories, orv, magi, stars of chaos, thousand autumns, mxtx
 　　　 　　　　　　　　　　　　　　　bad skunk, wuwa, hnk, dmdp, crk　　　
